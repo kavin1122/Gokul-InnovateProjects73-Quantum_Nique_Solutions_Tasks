@@ -1,1 +1,1 @@
-# Gokul-InnovateProjects73-Quantum_Nique_Solutions_Tasks
+# Gokul-InnovateProjects73-Quantum_Nique_Solutions_Task
